@@ -164,6 +164,8 @@
   - [Bilibili](https://space.bilibili.com/643755221)
 - zhuli
   - [YouTube](https://www.youtube.com/channel/UCn63G5jopR5Lq_cEiNNc9bA)
+- Juan Martinez (Spanish)
+  - [YouTube](www.youtube.com/@martinezjc95)   
  
 
 ## About
